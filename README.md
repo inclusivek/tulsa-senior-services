@@ -15,3 +15,6 @@ Exercise classes, walking track, daytrips, massage, etc.
 Mon - Fri, 8 a.m. - 4 p.m.
 Yearly membership: $25
 
+Oklahoma Healthy Aging Initiative (mostly classes) 
+http://www.ouhsc.edu/ohai/Home.aspx
+
